@@ -10,5 +10,5 @@
 故に、夢なき者に成功なし。
 ```
 
-## 日々暗唱すべきもの
+## 日々暗唱すべきもの1
 http://blog.livedoor.jp/kokoku2700/archives/43879620.html
